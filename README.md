@@ -1,0 +1,2 @@
+# Amakofer
+ZAAJDIOQW/*
